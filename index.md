@@ -1,4 +1,5 @@
 The Engineering of Communication and Logic
+
 Motivation expires. Systems compound.
 
 Most people rely on temporary inspiration to solve permanent problems. That is a mathematical error. Whether you are speaking on a stage, managing an operation, or centering your spiritual compass, you do not need more motivation. You need a better operating system.
